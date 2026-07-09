@@ -1,0 +1,1 @@
+elephant priest in [[Snowmelt]]. [[Luna]] gave them the angel head

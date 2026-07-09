@@ -1,0 +1,1 @@
+A hell hound from hades, who's [[Luna]]'s pet.

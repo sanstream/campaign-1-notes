@@ -1,0 +1,1 @@
+doctor researching a cure for his diseased daughter (now dead).

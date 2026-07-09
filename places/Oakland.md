@@ -1,0 +1,1 @@
+Coastal city ran by [[Baron Samedi]].

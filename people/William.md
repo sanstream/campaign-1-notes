@@ -1,0 +1,1 @@
+Co runner of the guild with [[Abel]] in [[Aelcliff]], leader of [[Ardekai order]]

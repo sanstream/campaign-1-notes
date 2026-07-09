@@ -1,0 +1,1 @@
+works at the [[Copper mines]] near [[Snowmelt]]. Gave us the [[Copper mines]] job.
